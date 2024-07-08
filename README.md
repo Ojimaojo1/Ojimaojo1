@@ -3,7 +3,7 @@
 - 🌱 I code mostly with Python ...
 - 💞️ I’m looking to collaborate on projects and, also gather insights from your stream of knowledge...
 - 📫 How to reach me ... floraobetule88@gmail.com
-- 😄 Pronouns: ... Ojima-Ojo
+- 😄 Pronouns: ... She/Her
 - ⚡ Fun fact: ... I remember even the slightest detail about you at first sight.
 
 

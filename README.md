@@ -1,0 +1,9 @@
+- 👋 Hi, I’m @jimaOjo1
+- 👀 I’m interested in Data Analysis and Software dev...
+- 🌱 I code mostly with Python ...
+- 💞️ I’m looking to collaborate on projects and, also gather insights from your stream of knowledge...
+- 📫 How to reach me ... floraobetule88@gmail.com
+- 😄 Pronouns: ... Ojima-Ojo
+- ⚡ Fun fact: ... I remember even the slightest detail about you at first sight.
+
+
